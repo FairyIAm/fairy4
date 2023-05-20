@@ -1,2 +1,2 @@
 # fairy4
-you beter listen to me she said
+you better listen to me she said
